@@ -1,1 +1,0 @@
-# apex-first-trimester-project
